@@ -12,3 +12,4 @@
 1. [July 24](http://tpcg.io/llcNts5a)
 2. [July 27](http://tpcg.io/rWfWFy2H)
 3. [July 29](http://tpcg.io/TCDb3DGz)
+4. [July 31](http://tpcg.io/OOAYxFI8) 
